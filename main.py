@@ -1,3 +1,0 @@
-fgvdvnfdvfdvjn vjn vjn vjn vjn
-явсиоіфолюимввлоива
-яссміЬВьмтчя vbxcvbnxvdbascuggasfc
